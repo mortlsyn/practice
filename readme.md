@@ -1,5 +1,1 @@
-
-
-
-https://github.com/mortlsyn/practice/assets/124105380/b8b00d10-f135-497f-a5d0-e6efca51241d
-
+[![Video](https://img.mytsi.org/i/3Ikj478.png)](https://www.youtube.com/watch?v=hWvsEY1cS2M)
